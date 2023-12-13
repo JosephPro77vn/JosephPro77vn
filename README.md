@@ -2,7 +2,7 @@
 - 👀 I’m interested in Future... I am Stacked -:)
 - 🌱 I’m currently learning AT Hunan University
 - 💞️ I’m looking to collaborate on AI and Bigdata WebDev...
-- 📫 How to reach me yosephsebsebe@gamil.com WeChat: GOAT-GOD
+- 📫 How to reach
 
 <!---
  I am Stacked -:)
